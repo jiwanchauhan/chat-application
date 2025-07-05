@@ -1,3 +1,1 @@
 # chat-application
-
-abdxiashs ,mxvkis
